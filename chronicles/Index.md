@@ -1,3 +1,6 @@
+"In a distant future closer than we would like to believe"
+
+
 Index
 
 Volume 1 The Journey
